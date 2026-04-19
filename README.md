@@ -1,4 +1,4 @@
-<p align="center"><img src="https://images.wikidexcdn.net/mwuploads/wikidex/f/fc/latest/20240924061126/Perfil_de_Azul.png" alt="me"width="150" height="240" /><br/></p></p>
+<p align="center"><img src="https://i.postimg.cc/yN5ZMxHM/Nuevo-tablero-(1).png" alt="me"width="" height="" /><br/></p></p>
 <p align="center"></p>
 <div align="center">
 
